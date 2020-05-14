@@ -6,6 +6,7 @@
 Il y a trois choses que les cadavres adorent, les chiens, la viande et les chats
 ![Alt text]
 (https://giphy.com/gifs/cat-yolo-peanut-butter-and-jelly-BJA5FJy94lvNK)
+![gif](https://media.giphy.com/media/BJA5FJy94lvNK/giphy.gif)
 =======
 Il y a trois choses que les cadavres adorent, les chiens, la viande et...
 Il faut un **début** à *tout*, alors voici un **début** :
