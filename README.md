@@ -4,9 +4,9 @@
 
 
 Il y a trois choses que les cadavres adorent, les chiens, la viande et les chats
-![Alt text]
-(https://giphy.com/gifs/cat-yolo-peanut-butter-and-jelly-BJA5FJy94lvNK)
-desolée chemin du gif pas bon je l'ai modifié :wink:
+
+
+desolée chemin du gif pas bon je l'ai modifié  et supprimé :wink:
 
 
 ![gif](https://media.giphy.com/media/BJA5FJy94lvNK/giphy.gif)
